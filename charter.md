@@ -17,8 +17,6 @@ Credit in collaborative scholarship works differently than in a traditional acad
 
 In being accountable for our own work, we commit to approach our work with excitement, diligence, and respect for its connectedness to the works of others. Moreover, in thinking about the changes of technology, we affirm that something is lost when collaboration only occurs at a distance, mediated by new technology. Together, we commit to make time and space for face-to-face thinking, present and in person as well.
 
-Do we mean explanations or explorations? We discussed this on Sept 17 and were unsure, communication is an important part of what we do, so we got rid of work and play.
-
 Guiding Questions:
 * How do the changes in media wrought by the twenty-first century change how we can think about, and do think about time? What can we now think about that was always present, but obscured by past practices?
 * What forms of technology and media should exist to change how we think about time?

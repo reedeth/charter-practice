@@ -1,5 +1,4 @@
 # Praxis Oath/Promise/Pledge/Creed:
-> *(this part will be memorized)* 
 
 We, the members of the Praxis Fellowship and Scholars’ Lab of the fifteen-sixteen academic year, in our explorations and explanations, in our obligations to one another and to those beyond our cohort, resolve:
 
@@ -10,7 +9,7 @@ We, the members of the Praxis Fellowship and Scholars’ Lab of the fifteen-sixtee
 
 In our determinations to fulfill these resolutions, "shortcomings" will be viewed not as failure but rather as a bettering challenge.
 
-Discussion: 
+## Discussion
 
 In respecting our obligations to one another and to those beyond our cohort we commit ourselves to being actively mindful of marginalized communities, with particular awareness toward issues of race, gender, class, and sexuality.
 

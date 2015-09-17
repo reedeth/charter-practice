@@ -10,3 +10,21 @@ We, the members of the Praxis Fellowship and Scholars’ Lab of the fifteen-sixtee
 
 In our determinations to fulfill these resolutions, "shortcomings" will be viewed not as failure but rather as a bettering challenge.
 
+Discussion: 
+
+In respecting our obligations to one another and to those beyond our cohort we commit ourselves to being actively mindful of marginalized communities, with particular awareness toward issues of race, gender, class, and sexuality.
+
+Credit in collaborative scholarship works differently than in a traditional academic context. In acknowledging our work and that of others we commit ourselves to give credit where it is due so as to honor the particular work that individuals have contributed to what we produce this coming academic year and in the future.
+
+In being accountable for our own work, we commit to approach our work with excitement, diligence, and respect for its connectedness to the works of others. Moreover, in thinking about the changes of technology, we affirm that something is lost when collaboration only occurs at a distance, mediated by new technology. Together, we commit to make time and space for face-to-face thinking, present and in person as well.
+
+Do we mean explanations or explorations? We discussed this on Sept 17 and were unsure, communication is an important part of what we do, so we got rid of work and play.
+
+Guiding Questions:
+* How do the changes in media wrought by the twenty-first century change how we can think about, and do think about time? What can we now think about that was always present, but obscured by past practices?
+* What forms of technology and media should exist to change how we think about time?
+* How do experiences of time differ based on differences of identity--or do they?
+* Does the experience of pleasure or pain alter our concepts and/or experiences of time passage?
+* How do we reflect on time in the past? How do we reflect on how people reflect on time in the past? How will we reflect on time now?
+*How does the experience of digital technologies change our sense of time in the present and immediate past? Can an online collaboration be the same as an in-person collaboration?
+* What does change over time look like if we don’t think of time linearly? Does change over time matter if time is not represented or understood in a linear fashion?
